@@ -1,4 +1,8 @@
 ---
+layout: post
+title:  "Micro Chip R/W Clip Review"
+date:   2018-04-28 17:56:48 -0700
+---
 
 Here's my 2-month tour with 1 backpack in Europe, challenges I faced, and how you can plan this trip yourself .
 ![Budapest](/images/17AndFemale1.jpg)
