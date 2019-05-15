@@ -1,11 +1,11 @@
 ---
 layout: post
-title:  "Micro Chip R/W Clip Review"
+title:  "17 and Female - Solo Travel for Two Months in Europe"
 date:   2018-04-28 17:56:48 -0700
 ---
 
 Here's my 2-month tour with 1 backpack in Europe, challenges I faced, and how you can plan this trip yourself .
-![Budapest](/images/17AndFemale1.jpg)
+![Budapest](/images/17AndFemale1.jpeg)
 The past summer, I spent 57 days in the Schengen area. My destinations included Paris, London, Brussels, Berlin, Budapest, Ljubljana, Florence, and Nice.
 My itinerary was flexible. I had a return flight, 1-month Eurrail Pass, and booked hostels for Paris and London. My destinations were not set in stone; Ljubljana and Florence were not originally on my list, but due to companions I met and people who raved about those places, I added them on.
 
@@ -18,14 +18,14 @@ Coming from America, I've grown up in a culture where age restrictions are stric
 However, I later found that established chain hostels would catch my age. It did not happen in my first scenario because the hostel didn't have any branches. St. Christopher's Inn and PLUS Hostels, both very popular across Europe, both caught me, but the former had a nice hostel worker that let me stay since I only booked 1 night, and the latter let me pass with a parental consent form stating I am allowed to travel by myself, which I had printed out before my trip.
 When I walked up to my room, I was greeted with clean bed sheets and 7 other roommates. None of them were remotely close to my age. The youngest-looking woman that I was talking with turned out to be in her 30s. As the week passed, I experienced the main difficulty that other solo travelers worried about: loneliness. It was isolating to be 17, and Ithis led to homesickness. My craving for Chinese and American food was barely alleviated by home cooked ramen made from scavenged hostel food. Most meals consisted of 3 euro gyros, ironically the most common European street food.
 To solve this problem, I booked a Chinese Airbnb in Budapest (yes, you heard that right) that promised authentic Northern Chinese meals and a welcoming family. Although the host's family felt just like home, telling me to "stay safe! have fun!" and jesting about my bad Chinese, and the food comfortingly home cooked, what I really needed were younger travelers I could relate to. That moment appeared when I met an 18 and 19 German and Danish girl at the Szechenyi Baths and struck up a conversation. The girls had both won a Eurail pass and met each other on a Facebook group for the winners.
-![The irony that the best Chinese food I've had outside of China was in Europe](/images/myself/17AndFemale2.jpg)
+![The irony that the best Chinese food I've had outside of China was in Europe](/images/17AndFemale2.jpeg)
 As we got along quite well and were in similar situations, I felt safe telling them that I was 17. The two relieved another worry of mine - being turned away from dance clubs. With them, I was introduced to a whole new way of traveling, and after going to my first club and many more after, I realized that no one cares about your age here.
 Through clubs, I found a whole world of young travelers. Although none of them were ever my age, there were plenty of college-aged students who I got along with. The people were amazing, from a 21-year old New Zealand philosopher pursuing a PhD to Germans hitchhiking and couch surfing to abandoned churches in Europe, sleeping in hammocks in the woods at night. These people would become my travel companions and friends.
 ![Solo travel is surprisingly social!](/images/17AndFemale3.jpeg)
 Hurdle two, check.
 And then, racism. I'll leave that for another post.
 Ultimately, the trip was unforgettable. I made lifelong friends, developed more independence (what to do? cook? where to SLEEP?), learned to be both wary and trusting of strangers. I'd do it again, and plan to (I'm lookin' at you, Asia)!
-!(/images/myself/Amanda.jpg)
+!(/images/myself/Amanda.jpeg)
 
 
 ---
@@ -48,7 +48,7 @@ My first day in a new city was just walking around. I'd find shops or statues or
 Free walking tours are very very legitimate. Don't forget to tip at the end!
 If you're strapped for cash, try working remotely as a contractor while traveling. I did some design freelance work on the computer I brought.
 
-![Speaking of walking around, the ironic No-Smoking smoke shop found in Paris](/images/17AndFemale7.jpg)
+![Speaking of walking around, the ironic No-Smoking smoke shop found in Paris](/images/17AndFemale7.jpeg)
 
 ---
 
